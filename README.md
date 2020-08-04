@@ -1,0 +1,1 @@
+# Taern-Kalkulator-wiedzy
